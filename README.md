@@ -1,1 +1,1 @@
-ngga tau mo ngisi apaan ude pusing duluan
+jangan percaya zodiak
